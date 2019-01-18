@@ -2,9 +2,7 @@
 Nesne YP Dönem Projesi
 
 
-![T3](https://lh4.googleusercontent.com/fJVgNVMyCUuGTd-c9FXa7dcRG86qT4elSrVcBfO8rCxfToy2WdvAyTSH4JWHaxTDaOH_qW3y0OZpdMZCiERA=w1920-h938-rw)
-
-![T3](https://lh5.googleusercontent.com/74OYwbHqKT9TzjCic2X2zVwQ3EcpQeSNHWRUWLro6pi67GZBmaS2vMxcVdd2GjKv_ydkC1qcAMfgIg5ApiPI=w1920-h938)
+![T3](http://drive.google.com/uc?export=view&id=1AH5VqngyBTdat-c-IaRSgemHELX7t9-9)
 
 ![T3](https://lh5.googleusercontent.com/gksk-x9f9ohpFQ-fbUlx4sz-Zwd6DFbLuykxjAbA9DjBMeIscEcWD5-0-LlOz7IYPOzGd5jiITRObeHk4Lei=w1920-h938)
 
