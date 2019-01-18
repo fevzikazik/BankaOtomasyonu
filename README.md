@@ -4,22 +4,24 @@ Nesne YP Dönem Projesi
 
 ![T3](http://drive.google.com/uc?export=view&id=1AH5VqngyBTdat-c-IaRSgemHELX7t9-9)
 
-![T3](https://lh5.googleusercontent.com/gksk-x9f9ohpFQ-fbUlx4sz-Zwd6DFbLuykxjAbA9DjBMeIscEcWD5-0-LlOz7IYPOzGd5jiITRObeHk4Lei=w1920-h938)
+![T3](http://drive.google.com/uc?export=view&id=1PcRQ7V6h2BIEzqlTTLZED53cye3CAVQ7)
 
-![T3](https://lh4.googleusercontent.com/7cFoQSMLeATwUsGJ9vcV_yC_xiLLxQtjvVTw3CvygNPPa5Vxnp6jG9qCcgyIp6N6Z2-Nq-nMZXxOZCzSaCwO=w1920-h938)
+![T3](http://drive.google.com/uc?export=view&id=1qe1bs9muur8B8mBUm5lEXfdgNGKV3Hvb)
 
-![T3](https://lh5.googleusercontent.com/X-hq7LYsBcCE7WkTVJmBnSuamnyq6x5Yw5DnLthQY1WyR16Ziq2iyhc3fDMsnuFn-1_nFWqyZZQBBcYeobwa=w1920-h938)
+![T3](http://drive.google.com/uc?export=view&id=19Y3eoWZKHjsrGp--sbuUTY2BCLMsEVhV)
 
-![T3](https://lh5.googleusercontent.com/b07Hw3f2QeFICszRmgERGds-odOtnjLLSiq8DktJ0JunT20N6-C2rxZ0793yLWJIk9mVnPMs6FIUirmnFEuo=w1920-h938)
+![T3](http://drive.google.com/uc?export=view&id=101Q4dCYfm8re22UQTkcqiojaytULlDcU)
 
-![T3](https://lh4.googleusercontent.com/mhvI4KdREYhjmDk19piIUKtdYPhTfUA5tasPgZiEqJywnAuffvR5zjcvNUFz9KLbTqxz-7Ld8Akn6X_yRXl9=w1920-h938)
+![T3](http://drive.google.com/uc?export=view&id=1dIQG9RNHYR8tvMxR8TFXf9WfxEHW_501)
 
-![T3](https://lh5.googleusercontent.com/rqNdO6eK9vH4WYN-CFfGndjvi_ZYYbG0eairvFYpRckDjO7AUTIf6HFXBvXEfVuPjIUNZtrWcTr1s1KKqhu5=w1920-h938)
+![T3](http://drive.google.com/uc?export=view&id=1LfSiXMdVktyQhGR5lMOIvHh-jeXUfbbB)
 
-![T3](https://lh3.googleusercontent.com/zPrZTeUZGZwvp5128R9WpXs6fIQH6o2G8dH7B2mhM8EmUdauD6ubAw7yeGnVs9FrQJFg6-eRM80IiJOnl3gz=w1920-h938)
+![T3](http://drive.google.com/uc?export=view&id=1Qqk9LMUWUPIrf3yI372CGmSSdmkgryRZ)
 
-![T3](https://lh5.googleusercontent.com/VXzSFCPir8HjE2En-xe2lL_OGHBj7Pg4xZwRigLaru3pzLa1nTZ6BOtYOfsRI1-NpayXKtjovq20q9qm00ES=w1920-h938)
+![T3](http://drive.google.com/uc?export=view&id=1bOH8w0tdyLLpeqv7HXy4WCzNsH9yYq_J)
 
-![T3](https://lh5.googleusercontent.com/YMSZYjnUSB9RLoOfVPiaOwkgqnA5H7T_1XIdyPsoYI1zSyfLrmmoqtrdx-FWhK7zAMa5FRkB7ur0VOOIRzVz=w1920-h938)
+![T3](http://drive.google.com/uc?export=view&id=1caBaydmVdjsAhXkZ_JN1uL8_aRSG33hR)
 
-![T3](https://lh5.googleusercontent.com/O8nZAA8HJu7eCxWUDdSFrjyTc4VBH-2HZ7jlrpyJ3v2Czb-gJcGgV1bsoUINt6GQdmzP_XLzIEteo1Ht6TDo=w1920-h938)
+![T3](http://drive.google.com/uc?export=view&id=17JfTEBDKRkeZ064B59i7XsUiEBnWBusZ)
+
+![T3](http://drive.google.com/uc?export=view&id=1AH5VqngyBTdat-c-IaRSgemHELX7t9-9)
