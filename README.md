@@ -23,5 +23,3 @@ Nesne YP Dönem Projesi
 ![T3](http://drive.google.com/uc?export=view&id=1caBaydmVdjsAhXkZ_JN1uL8_aRSG33hR)
 
 ![T3](http://drive.google.com/uc?export=view&id=17JfTEBDKRkeZ064B59i7XsUiEBnWBusZ)
-
-![T3](http://drive.google.com/uc?export=view&id=1AH5VqngyBTdat-c-IaRSgemHELX7t9-9)
